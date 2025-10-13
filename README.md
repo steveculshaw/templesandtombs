@@ -8,3 +8,9 @@ The exploits of the Monday Temples & Tombs group ...
 * ???   *(Lynne)*
 * ???   *(Neil)*
 * ???   *(Steve)*
+
+## Current Adventure
+
+### 13th October
+
+The adventurers assemble !!!
