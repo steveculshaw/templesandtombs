@@ -19,8 +19,19 @@ Returning from looking for Pharaoh Hataheput's cartouche, in the Mabira Forest i
 
 We got to meet with Professor Henri (Egyptologist) in his office in Alexandria ...<br>
 
-He shows us a letter from "The Ancient Plumars" ... <br>
-Discussing the "Knights of the Feather of Ma'at", who protect a precious artifact.<br>
+He shows us a letter from "The Ancient Plumars", which was delivered by hand ... <br>
+
+It's discussing the "Knights of the Feather of Ma'at", who protect a precious artifact.<br>
 They need the feather returning to "its rightful place in Thebes".<br>
 But first we have to find them !!! <br>
 
+Henri knows a bit of the legend of the feather.<br>
+It was used to weigh the souls entering the afterlife.<br>
+Allowed them to learn the true secret in a persons heart.<br>
+
+Then Alexander, and then the Romans came and went ...<br>
+And it was rumoured that Constantine had it moved to Constantinople.<br>
+
+Hall of Ma'at was discovered about 20 years ago. It was hidden by building a museum on top of it !!!<br>
+
+Knights of the Feather were mentioned fourth crusade of Constantinople.
