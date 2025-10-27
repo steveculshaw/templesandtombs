@@ -49,10 +49,13 @@ And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
 **In Constantinople**<br>
 
-Hendricks notices four gentlemen (?) similarly dressed, scattered around the room.<br>
+Hendricks notices four gentlemen (British) similarly dressed, scattered around the room.<br>
 Ace Kirby sees two pairs of gentlemen (Italian), similarly dressed, in a pair of cafes watching people coming and going.<br>
 
 Dr 'prof' Frank is approached by a young lady; Asrah Teckin (middle eastern origin).<br>
 
-The prof, the doc, and then Hendricks go with her to her office.<br>
+The prof, Doc Charley, and then Hendricks go with her to her office to discuss matters.<br>
+
+Ace wanders in, asks for a light ... they're Brit's. One of them walks round, telling Ace all about the building *YAWN*<br>
+
 
