@@ -4,9 +4,9 @@ The exploits of the Monday Temples & Tombs group ...
 
 ## Characters
 
-* Charlie Takajima   *(Andy)*
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/charlie-takajima.jpg">Charlie Takajima   *(Andy)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
-* 'Frank' Francis Lionel Secord   *(Neil)*
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord">'Frank' Francis Lionel Secord   *(Neil)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ranger-kirby-image.jpg">Sam 'Ranger' Kirby   *(Steve)*</a>
 
 ## Current Adventure
