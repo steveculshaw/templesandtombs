@@ -6,7 +6,7 @@ The exploits of the Monday Temples & Tombs group ...
 
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/charlie-takajima.jpg">Dr Charlie Takajima   *(Andy)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord">Dr 'Frank' Francis Lionel Secord   *(Neil)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord.jpg">Dr 'Frank' Francis Lionel Secord   *(Neil)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ace-kirby-image.jpg">Sam 'Ace' Kirby   *(Steve)*</a>
 
 ## Current Adventure
@@ -49,3 +49,5 @@ And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
 Hendricks notices four gentlemen scattered around the room.<br>
 Ace Kirby two pairs of gentlemen in cafes watching people coming and going.<br>
+
+Dr Frank is approached by a young lady; Asrah Teckin (middle eastern origin).<br>
