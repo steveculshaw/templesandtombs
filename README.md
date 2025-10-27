@@ -7,9 +7,11 @@ The exploits of the Monday Temples & Tombs group ...
 * Charlie Takajima   *(Andy)*
 * Hendricks   *(Lynne)*
 * 'Frank' Francis Lionel Secord   *(Neil)*
-* Sam 'Ranger' Kirby   *(Steve)*
+* <a target="_blank" rel="noopener" href="">Sam 'Ranger' Kirby   *(Steve)*</a>
 
 ## Current Adventure
+
+<a target="_blank" rel="noopener" href="">Heroic Actions</a>
 
 ### 27th October
 
@@ -34,4 +36,11 @@ And it was rumoured that Constantine had it moved to Constantinople.<br>
 
 Hall of Ma'at was discovered about 20 years ago. It was hidden by building a museum on top of it !!!<br>
 
-Knights of the Feather were mentioned fourth crusade of Constantinople.
+Knights of the Feather were mentioned 1204, just before the fifth crusade/sacking of Constantinople.
+
+Professor Henri reckons we need to head to Constantinople ...<br>
+He has a contact, Asrah Teckin works at the Hagia Sophia Museum. She curates the Byzantine antiquities.<br>
+
+He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br>
+<b>Do not enter without the feather !!!</b>
+
