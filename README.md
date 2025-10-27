@@ -84,7 +84,7 @@ And in the background is a fortress ... in greek around edge, partial word **"KO
 
 Continue on to the collection, where there is a coin, supposedly Venetian, and on one side of it, a plume.<br> 
 Checking the back ... another plume, and this has some greek writing around it ... **"KOUFONIFI"**.<br>
-... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.jpg">'Koufonisi'</a>?<br>
+... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.png">'Koufonisi'</a>?<br>
 
 Whilst everyone is engrossed in the "prof's" examination of the coin, Asrah excuses herself, and heads out of the room ... <br>
 Hendrick, ever the gentleman, offers to escort her, but before he can catch up with her, she closes the door and there is the **CLICK** of a lock ...<br>
