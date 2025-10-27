@@ -4,10 +4,10 @@ The exploits of the Monday Temples & Tombs group ...
 
 ## Characters
 
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/charlie-takajima.jpg">Charlie Takajima   *(Andy)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/charlie-takajima.jpg">Dr Charlie Takajima   *(Andy)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord">'Frank' Francis Lionel Secord   *(Neil)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ranger-kirby-image.jpg">Sam 'Ranger' Kirby   *(Steve)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord">Dr 'Frank' Francis Lionel Secord   *(Neil)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ace-kirby-image.jpg">Sam 'Ace' Kirby   *(Steve)*</a>
 
 ## Current Adventure
 
@@ -45,3 +45,7 @@ He has a contact, **Asrah Teckin** works at the Hagia Sophia Museum. She curates
 He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br><br>
 And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
+**In Constantinople**<br>
+
+Hendricks notices four gentlemen scattered around the room.<br>
+Ace Kirby two pairs of gentlemen in cafes watching people coming and going.<br>
