@@ -39,8 +39,8 @@ Hall of Ma'at was discovered about 20 years ago. It was hidden by building a mus
 Knights of the Feather were mentioned 1204, just before the fifth crusade/sacking of Constantinople.
 
 Professor Henri reckons we need to head to Constantinople ...<br>
-He has a contact, Asrah Teckin works at the Hagia Sophia Museum. She curates the Byzantine antiquities.<br>
+He has a contact, **Asrah Teckin** works at the Hagia Sophia Museum. She curates the Byzantine antiquities.<br>
 
-He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br>
-<b>Do not enter without the feather !!!</b>
+He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br><br>
+And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
