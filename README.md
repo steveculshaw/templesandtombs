@@ -16,6 +16,8 @@ The exploits of the Monday Temples & Tombs group ...
 
 ### 27th October
 
+**In Alexandria**<br>
+
 The adventurers assemble !!!<br>
 
 Returning from looking for Pharaoh Hataheput's cartouche, in the Mabira Forest in Uganda.
@@ -47,7 +49,10 @@ And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
 **In Constantinople**<br>
 
-Hendricks notices four gentlemen scattered around the room.<br>
-Ace Kirby two pairs of gentlemen in cafes watching people coming and going.<br>
+Hendricks notices four gentlemen (?) similarly dressed, scattered around the room.<br>
+Ace Kirby sees two pairs of gentlemen (Italian), similarly dressed, in a pair of cafes watching people coming and going.<br>
 
-Dr Frank is approached by a young lady; Asrah Teckin (middle eastern origin).<br>
+Dr 'prof' Frank is approached by a young lady; Asrah Teckin (middle eastern origin).<br>
+
+The prof, the doc, and then Hendricks go with her to her office.<br>
+
