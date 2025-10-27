@@ -11,7 +11,8 @@ The exploits of the Monday Temples & Tombs group ...
 
 ## Current Adventure
 
-<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/Coughlin-Curtiss-Robin.jpg">Jenny *(aka Coughlin-Curtiss-Robin)*</a>
 
 ### 27th October
 
