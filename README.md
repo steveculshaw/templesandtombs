@@ -18,6 +18,7 @@ The exploits of the Monday Temples & Tombs group ...
 
 **In Alexandria**<br>
 
+
 The adventurers assemble !!!<br>
 
 Returning from looking for Pharaoh Hataheput's cartouche, in the Mabira Forest in Uganda.
@@ -47,19 +48,46 @@ He has a contact, **Asrah Teckin** works at the Hagia Sophia Museum. She curates
 He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br><br>
 And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
+---
+
 **In Constantinople**<br>
 
-Hendricks notices four gentlemen (British) similarly dressed, scattered around the room.<br>
-Ace Kirby sees two pairs of gentlemen (Italian), similarly dressed, in a pair of cafes watching people coming and going.<br>
+Hendricks notices four gentlemen, similarly dressed, scattered around the room watching.<br>
+Ace Kirby sees two pairs of gentlemen, similarly dressed, in a pair of nearby cafes, watching people coming and going from the museum.<br>
+Asking for a light, they're Italian<br>
 
-Dr 'prof' Frank is approached by a young lady; Asrah Teckin (middle eastern origin).<br>
+Dr "prof" Frank is approached by a young lady; Asrah Teckin (middle eastern origin).<br>
 
-The prof, Doc Charley, and then Hendricks go with her to her office to discuss matters.<br>
+The "prof", Doc Charley, and then Hendricks go with her to her office to discuss matters.<br>
 
-Ace wanders in, asks for a light ... they're Brit's. One of them walks round, telling Ace all about the building *YAWN*<br>
+Ace wanders into the museum, again asks for a light ... this lot is posh Brit's.<br>
+And one of them proceeds to walk around, telling Ace all about the building ... ***YAWN***<br>
 
 Asrah focussed on the Roman period ...<br>
 
 The local knights, who were guarding the treasures of Hagia Sophia, aka the 'Plummers', evolved into the Knights of the Feather.<br>
 Said they spirited the feather away before the Crusader Knights sacked the city.<br>
 
+The city has vast underground chambers, tunnels, passages, etc, with access by barred gates, locked each night.<br>
+**Mr. Hendricks** gets shown the ossuary by Abdul, and takes Ace with him, down into the tunnels ... were we wander for the rest of the day.<br>
+
+He spots a Crusader marked route through to the inside of the wall, right next to small gatehouse, also with a Crusader mark.<br>
+
+The "prof" does his thing, and starts poking around the archives ... <br>
+He's found a letter, from Brother Thomas Ambrosia, signed as "Commander of the Knights of the Feather".<br>
+Address to the "Bishops of Hagia Sophia" ... *We are going to remove the Feather under protection of Venetians, and funded by the minting of special coins.*<br>
+
+Asrah points at their coin collection ...
+
+Passing through the narthex ... spot a portrait of a knight, with a symbol on his shield ... **Ma'at** !!!<br>
+And in the background is a fortress ... in greek around edge, partial word **"KOUF..."**<br>
+
+Continue on to the collection, where there is a coin, supposedly Venetian, and on one side of it, a plume.<br> 
+Checking the back ... another plume, and this has some greek writing around it ... **"KOUFONIFI"**.<br>
+... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.jpg">'Koufonisi'</a>?<br>
+
+Whilst everyone is engrossed in the "prof's" examination of the coin, Asrah excuses herself, and heads out of the room ... <br>
+Hendrick, ever the gentleman, offers to escort her, but before he can catch up with her, she closes the door and there is the **CLICK** of a lock ...<br>
+Ace thinks ... "*sadly, she hasn't seen Hendricks in action ... **he's so amazing, it's like magic!***"
+
+### 10th November
