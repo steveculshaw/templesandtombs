@@ -5,12 +5,12 @@ The exploits of the Monday Temples & Tombs group ...
 ## Characters
 
 * ???   *(Andy)*
-* ???   *(Lynne)*
+* Hendricks   *(Lynne)*
 * ???   *(Neil)*
-* ???   *(Steve)*
+* Sam 'Ranger' Kirby   *(Steve)*
 
 ## Current Adventure
 
-### 13th October
+### 27th October
 
 The adventurers assemble !!!
