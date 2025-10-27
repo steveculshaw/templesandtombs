@@ -5,13 +5,13 @@ The exploits of the Monday Temples & Tombs group ...
 ## Characters
 
 * Charlie Takajima   *(Andy)*
-* Hendricks   *(Lynne)*
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
 * 'Frank' Francis Lionel Secord   *(Neil)*
-* <a target="_blank" rel="noopener" href="">Sam 'Ranger' Kirby   *(Steve)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ranger-kirby-image.jpg">Sam 'Ranger' Kirby   *(Steve)*</a>
 
 ## Current Adventure
 
-<a target="_blank" rel="noopener" href="">Heroic Actions</a>
+<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
 
 ### 27th October
 
