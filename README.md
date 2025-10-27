@@ -34,8 +34,8 @@ Henri knows a bit of the legend of the feather.<br>
 It was used to weigh the souls entering the afterlife.<br>
 Allowed them to learn the true secret in a persons heart.<br>
 
-Then Alexander, and then the Romans came and went ...<br>
-And it was rumoured that Constantine had it moved to Constantinople.<br>
+Then it fell into Alexander's hand, and then the Romans came, took it, and went ...<br>
+And it was rumoured that Emperor Constantine had it moved to Constantinople.<br>
 
 Hall of Ma'at was discovered about 20 years ago. It was hidden by building a museum on top of it !!!<br>
 
@@ -58,4 +58,8 @@ The prof, Doc Charley, and then Hendricks go with her to her office to discuss m
 
 Ace wanders in, asks for a light ... they're Brit's. One of them walks round, telling Ace all about the building *YAWN*<br>
 
+Asrah focussed on the Roman period ...<br>
+
+The local knights, who were guarding the treasures of Hagia Sophia, aka the 'Plummers', evolved into the Knights of the Feather.<br>
+Said they spirited the feather away before the Crusader Knights sacked the city.<br>
 
