@@ -103,11 +103,30 @@ The Italian's get into their car and give chase<br>
 Frank jumps onto the italians car's running board<br>
 And Sam hijacks a taxi, and joins the chase.
 
-Gun fire is exchanged between Brit's, Italian's and Sam<br>
+Gun fire is exchanged between Brit's, Italian's and Sam in the trailing taxi<br>
 
 We deal with the Itie's and head of towards the airport ---> <br>
 
 Asrah reckons we're seeking "The Plume", and we should go with them to Koufonisi ... actually we should be the lead, and she and the SIS agents will escort us
 
 Sam takes the planes controls, saying goodbye to Jenny, and the group heads for Koufonisi ---> <br>
+
+Land the plane, and get a boat over to the island of Koufonisi.<br>
+Walk up the hill towards the fortress on the hill.<br>
+There is a house with three old people sat outside ... Dmitri, Nicolas and Sophia.<br>
+... Frank reckons Sophia is understanding us speaking in English!<br>
+
+Frank gets them to admit to them being the last of the "Knights of the Plume".<br>
+They need "The Plume" needs to be returned to the Temple of Ma'at, but they are no longer capable.<br>
+We must show ourselves as worthy ... *Inside the fortress is a passageway down, where there are guides who will direct you to the location of "the Plume"*.<br>
+
+The passageway splits into two; one has Anubis, the other has Set ... which is the right way to go?<br>
+Frank scratches his head ... and points at Anubis.<br>
+
+Continue on the passage, to a chamber with a "river" running through it, with a "coracle" on the side, and an overhead pulley system.<br>
+We all cross the "river", and proceed further ...<br>
+Hendrick spots some trip wires ... and warns the rest of the party.<br>
+Eventually is arrives at a cavern, with a niche on the wall.<br>
+This niche has an engraving of Ma'at over it, and in it, is a large, ornately carved box.<br>
+Frank reckons 
 
