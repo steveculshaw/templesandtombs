@@ -128,5 +128,14 @@ We all cross the "river", and proceed further ...<br>
 Hendrick spots some trip wires ... and warns the rest of the party.<br>
 Eventually is arrives at a cavern, with a niche on the wall.<br>
 This niche has an engraving of Ma'at over it, and in it, is a large, ornately carved box.<br>
-Frank reckons 
+Frank reckons it contains the feather, and opens it to find a large blue & white ostrich feather.<br>
+We head back out.<br>
+Whilst crossing the river, Sam hears gun fire from outside<br>
+Cautiously advancing, avoiding the traps, the party emerges to find the French are attacking.<br>
+Trying to avoid them, while Asrah and the SIS agents keep them engaged, we climb down the fortress wall.<br>
 
+Frank and Sam descend ok, but disaster strikes when Hendrick has an accident ... <br>
+And even worse, he's brought down the rope, leaving Charlie stranded on the top of the wall.<br>
+Charlie yells to "meet me in Cairo", and turns to face the attackers with the fake feather
+
+### 17th November
