@@ -8,11 +8,12 @@ The exploits of the Monday Temples & Tombs group ...
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord.jpg">Dr 'Frank' Francis Lionel Secord   *(Neil)*</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ace-kirby-image.jpg">Sam 'Ace' Kirby   *(Steve)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/Coughlin-Curtiss-Robin.jpg">Jenny *(aka Coughlin-Curtiss-Robin)*</a>
 
 ## Current Adventure
 
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/Coughlin-Curtiss-Robin.jpg">Jenny *(aka Coughlin-Curtiss-Robin)*</a>
+* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-catches.png">Catches</a>
 
 ### 27th October
 
@@ -106,4 +107,7 @@ Gun fire is exchanged between Brit's, Italian's and Sam<br>
 
 We deal with the Itie's and head of towards the airport ---> <br>
 
-She reckons we're seeking "The Plume", and we should go with them to Koufonisi ... actually we should be the lead, and she and the SIS agents will escort us
+Asrah reckons we're seeking "The Plume", and we should go with them to Koufonisi ... actually we should be the lead, and she and the SIS agents will escort us
+
+Sam takes the planes controls, saying goodbye to Jenny, and the group heads for Koufonisi ---> <br>
+
