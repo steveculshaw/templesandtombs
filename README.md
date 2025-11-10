@@ -91,3 +91,19 @@ Hendrick, ever the gentleman, offers to escort her, but before he can catch up w
 Ace thinks ... "*sadly, she hasn't seen Hendricks in action ... **he's so amazing, it's like magic!***"
 
 ### 10th November
+
+Hendrick's picks the door with ease, and we give chase to Asrah through a crowded Hagia Sofia ...
+
+Hendrick's catches up with Asrah at the main entrance<br>
+And gets warned about "Agents Ahead" (the Itie's) by one of her associates (the Brit's)
+
+Hendrick's, Asrah and Brit agents jump into a car, and head off<br>
+The Italian's get into their car and give chase<br>
+Frank jumps onto the italians car's running board<br>
+And Sam hijacks a taxi, and joins the chase.
+
+Gun fire is exchanged between Brit's, Italian's and Sam<br>
+
+We deal with the Itie's and head of towards the airport ---> <br>
+
+She reckons we're seeking "The Plume", and we should go with them to Koufonisi ... actually we should be the lead, and she and the SIS agents will escort us
