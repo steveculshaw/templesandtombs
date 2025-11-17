@@ -153,7 +153,21 @@ She is taken away be the French agents ... and hear them moaning about the feath
 
 Head down the Nile to Luxor, and meet up with Professor Henri in his office.<br>
 Stepping in to his office, and are ambushed by two brit's with guns.<br>
-Henri apologies, and a third man comes in and goes to take Henri's seat.<br>
+Henri apologies, and a third man (Bishop, SIS) comes in and goes to take Henri's seat.<br>
 Hendrick's dodges out of the room, barges into a third agent, dodges past him, out into the main body of the museum.<br>
+
+Bishop wants the plume returning to the temple, and is demanding it be done.<br>
+And reckons the path to the temple has been compromised.<br>
+
+He confirms that both Henri and him had sent, and lost, men to the underground temple beneath the museum.<br>
+
+Meanwhile Hendricks takes cover in a side office.<br>
+Swaps the plume for an ostrich feather.<br>
+
+The party head down into the underchambers, passing a card "For Nico, you will be missed".<br>
+Entrance way has a symbol for the god, Sia.<br>
+People have been sent through her, and none have returned.<br>
+
+
 
 
