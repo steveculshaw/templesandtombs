@@ -19,7 +19,6 @@ The exploits of the Monday Temples & Tombs group ...
 
 **In Alexandria**<br>
 
-
 The adventurers assemble !!!<br>
 
 Returning from looking for Pharaoh Hataheput's cartouche, in the Mabira Forest in Uganda.
@@ -109,9 +108,9 @@ We deal with the Itie's and head of towards the airport ---> <br>
 
 Asrah reckons we're seeking "The Plume", and we should go with them to Koufonisi ... actually we should be the lead, and she and the SIS agents will escort us
 
-Sam takes the planes controls, saying goodbye to Jenny, and the group heads for Koufonisi ---> <br>
+Sam takes the planes controls, saying goodbye to Jenny leaving her in Istanbul, and the group heads for Koufonisi ---> <br>
 
-Land the plane, and get a boat over to the island of Koufonisi.<br>
+Land the mail plane at Naxos, and get a boat over to the island of Koufonisi.<br>
 Walk up the hill towards the fortress on the hill.<br>
 There is a house with three old people sat outside ... Dmitri, Nicolas and Sophia.<br>
 ... Frank reckons Sophia is understanding us speaking in English!<br>
@@ -136,6 +135,25 @@ Trying to avoid them, while Asrah and the SIS agents keep them engaged, we climb
 
 Frank and Sam descend ok, but disaster strikes when Hendrick has an accident ... <br>
 And even worse, he's brought down the rope, leaving Charlie stranded on the top of the wall.<br>
-Charlie yells to "meet me in Cairo", and turns to face the attackers with the fake feather
+Charlie yells to "meet me in Alexandria", and turns to face the attackers with the fake feather
 
 ### 17th November
+
+Frank, Hendricks and Sam are stood at the bottom on a narrow ledge ... leaving Charlie is stuck on the top of the fort.
+
+The three head down to the boat, gesticulating with the captain to leave now !
+And the boat heads towards Naxos, and the mail plane ...
+
+Meanwhile Charlie tries to negotiate with the French ...
+
+They demand the "english agent" come out, and Asrah steps out.<br>
+She is taken away be the French agents ... and hear them moaning about the feather being a fake
+
+*... return to Alexandria and the party reunites ...*
+
+Head down the Nile to Luxor, and meet up with Professor Henri in his office.<br>
+Stepping in to his office, and are ambushed by two brit's with guns.<br>
+Henri apologies, and a third man comes in and goes to take Henri's seat.<br>
+Hendrick's dodges out of the room, barges into a third agent, dodges past him, out into the main body of the museum.<br>
+
+
