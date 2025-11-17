@@ -167,6 +167,24 @@ Swaps the plume for an ostrich feather.<br>
 The party head down into the underchambers, passing a card "For Nico, you will be missed".<br>
 Entrance way has a symbol for the god, Sia.<br>
 People have been sent through her, and none have returned.<br>
+The snake hieroglyph presses in, and there is a "click".<br>
+Frank leads the way, and spots a "blade trap", thankfully restrained!<br>
+
+Continuing on to the next portal ... <br>
+There is a body ahead, missing his head!<br>
+Ace crawls through, and a blade, and then a second blade sweeps across to de-head any person.
+
+And there is a third portal, with a large snake, Stinger, where Ra would pause and draw breath<br>
+Charlie takes a deep breath, and steps forward ... there is a "sump" in the corridor, with a faint green gas in it.<br>
+
+And on to a fourth portal, with the hieroglyphs of the gods above the portal<br>
+And either side of the way is the hieroglyph of the mortals.<br>
+The two mortals can be "bowed down" by pushing the top.<br>
+Head through a low passage ... the "roof" is a large block<br>
+
+And another portal; next symbol is Apep, enemy of Ra, who would try and plunge the world into darkness.<br>
+The Apep symbol is all over the room, similar to plaster appliques to the wall.<br>
+Frank reckons we should remove them all ... and there is a "frump" noise as if something has settled?<br>
 
 
 
