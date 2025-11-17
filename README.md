@@ -186,6 +186,21 @@ And another portal; next symbol is Apep, enemy of Ra, who would try and plunge t
 The Apep symbol is all over the room, similar to plaster appliques to the wall.<br>
 Frank reckons we should remove them all ... and there is a "frump" noise as if something has settled?<br>
 
+Beyond is a room, with symbols carved all over for the gods, the sacred scarab, and many more ...<br>
+Hendrick reckons the "tiles" are very brittle, and there is nothing beneath them.<br>
+Frank reckons the scarab's are an outlier!<br>
+We have to jump across the scarab tiles ...
 
+And now we're at the Temple of Ma'at !!!<br>
+There is a scale, which is just not level
 
+Charlie, the young & fresh medic, goes forward with the feather and places ...<br>
+The scale balances level...<br>
 
+The temple starts shaking ... and it's coming down !!!<br>
+
+The party turns and legs it !!!!
+
+We get back to the museum, with the dust bellowing out of the collapsed tunnel.
+
+### 1st December
