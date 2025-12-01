@@ -203,4 +203,11 @@ The party turns and legs it !!!!
 
 We get back to the museum, with the dust bellowing out of the collapsed tunnel.
 
+XP - take general talent [Stunt Person] ... You get a Hero Die whenever you use Stunt
+
 ### 1st December
+
+In Lima, at the Hotel International, when get an invite to the Society of Global Naturalists<br>
+Black tie dinner party at Dr. Sara Luispe<br>
+
+The night of the dinner ...<br>
