@@ -216,6 +216,12 @@ Greeted by Dr Sara ... and chat about our search for the Andean "yeti"<br>
 Conversation moves on to the next expedition of the Society, using their latest equipment; a zeppelin<br>
 It has been customised with a zoological laboratory along with animal pens.<br>
 
-We're invited to crew the zeppelin in the search for the lost Alvarez expedition.<br>
+We're invited to crew the "Sky Zeppelin" in the search for the lost Alvarez expedition.<br>
 
+Dr Hugo Alvarez is a leading naturalist, working at the museum.<br>
+Just over 5 years ago, assembled a team of 28, who planned an expedition to the high mountains of Busca Cardera to investigate the source of some unusual large bones of a non-hominid ... an Andean elephant?<br>
+They headed to Yungay, and then a storm hit ... and they have not been seen since.
+
+This area was a centre of the Inca, maybe even pre-Inca.<br>
+Only document, do not remove anything.<br>
 
