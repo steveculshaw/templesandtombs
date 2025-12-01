@@ -242,4 +242,10 @@ Manage to land the ship ... the valley is a rainforest! <br>
 
 After a nervous night, dawn shows the plants are nothing like what we know ... it's a "lost world" !!!
 
+Check the ship out, and find some damage that needs fixing before we fly ...
+
+Suddenly a dinosaur (Spinosaurus) charges out of the jungle ...
+
+### 12th January 2026
+
 
