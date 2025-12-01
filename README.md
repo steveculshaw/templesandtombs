@@ -211,3 +211,11 @@ In Lima, at the Hotel International, when get an invite to the Society of Global
 Black tie dinner party at Dr. Sara Luispe<br>
 
 The night of the dinner ...<br>
+Few members of the society are circulating around<br>
+Greeted by Dr Sara ... and chat about our search for the Andean "yeti"<br>
+Conversation moves on to the next expedition of the Society, using their latest equipment; a zeppelin<br>
+It has been customised with a zoological laboratory along with animal pens.<br>
+
+We're invited to crew the zeppelin in the search for the lost Alvarez expedition.<br>
+
+
