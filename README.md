@@ -219,9 +219,27 @@ It has been customised with a zoological laboratory along with animal pens.<br>
 We're invited to crew the "Sky Zeppelin" in the search for the lost Alvarez expedition.<br>
 
 Dr Hugo Alvarez is a leading naturalist, working at the museum.<br>
-Just over 5 years ago, assembled a team of 28, who planned an expedition to the high mountains of Busca Cardera to investigate the source of some unusual large bones of a non-hominid ... an Andean elephant?<br>
+Just over 5 years ago, assembled a team of 28, who planned an expedition to the high mountains of Cordillera Blanca to investigate the source of some unusual large bones of a non-hominid ... an Andean elephant?<br>
 They headed to Yungay, and then a storm hit ... and they have not been seen since.
 
 This area was a centre of the Inca, maybe even pre-Inca.<br>
 Only document, do not remove anything.<br>
+
+The original bones were from a "Dr Chambi"
+
+Depart to Yungay taking 4 days in the zeppelin.<br>
+Head into town and met Dr Chambi.<br>
+He has a cupboard with more examples, including some which are as tall as Hendrick<br>
+Could have been from a predator, some 40' high!<br>
+
+Depart Yungay heading for the mountains ...<br>
+
+There is an enormous storm coming in ...<br>
+Turn the zeppelin into the weather ...<br>
+The ship is driven down, fortunately into a valley as opposed to the actual mountain.<br>
+
+Manage to land the ship ... the valley is a rainforest! <br>
+
+After a nervous night, dawn shows the plants are nothing like what we know ... it's a "lost world" !!!
+
 
