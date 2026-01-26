@@ -250,7 +250,7 @@ Hendrick shots at it, and scares it off
 ### 26th January 2026
 
 Settle down for the night with a small camp fire<br>
-Usual jungle nighttime noises ... but there is an unknown deep rumble<br>
+Usual jungle nighttime noises ... but there is an unknown deep rumble ... brontosaurs!<br>
 
 Next morning, something is approaching the camp ...<br>
 And four figures break out into the clearing!<br>
@@ -260,6 +260,35 @@ And four figures break out into the clearing!<br>
  Sara Vasques <br>
 The remains of the Alvarez expedition ...<br>
 The expedition entered some caves, and came out in the strange valley ... <br>
+
+There are 3 types of big dinosaurs; spiny, horny and brontosaurs
+
+Go with the survivors to their camp, about 4 hours away.<br>
+They have some rifles, but they don't want anyone to touch them.<br>
+They do have some dinosaur bones, which they say can be taken back.<br>
+... they are steering us away from certain caves!<br>
+Frank reckons the caves are pre-Incan !<br>
+Charlie spots some graves over near the caves ... about 10-12<br>
+ ... quizzing Grace about deaths, and notes that Eugene has an old wound that could be a bullet graze<br>
+Survivor Eugene is keeping watch, including the caves above ! <br>
+
+======
+BREAK
+======
+
+City in a set of caves, Alvarez and four others have split from the 4 survivors<br>
+Take the spark plugs from the airship, so no-one else can fly it away ! <br>
+
+Head out to the Alvarez camp in the caves.<br>
+Hendrick disables their traps. <br>
+And then into the cave and come through to a large cavern with a small Incan settlement in it.<br>
+
+Charlie persuades Alvarez to let him examine him ... all Ok if a little paranoid ... with reason !<br>
+
+Alvarez details how the other survivors only wanted to take the "money & run", i.e. steal the gold<br>
+He wants to do a proper archaeological retrieval.
+
+Settle down for the night, with a view to an early start to avoid the other group
 
 
 
