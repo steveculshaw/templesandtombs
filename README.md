@@ -244,8 +244,22 @@ After a nervous night, dawn shows the plants are nothing like what we know ... i
 
 Check the ship out, and find some damage that needs fixing before we fly ...
 
-Suddenly a dinosaur (Spinosaurus) charges out of the jungle ...
+Suddenly a dinosaur (Spinosaurus) charges out of the jungle, attacking Ace...<br>
+Hendrick shots at it, and scares it off
 
-### 12th January 2026
+### 26th January 2026
+
+Settle down for the night with a small camp fire<br>
+Usual jungle nighttime noises ... but there is an unknown deep rumble<br>
+
+Next morning, something is approaching the camp ...<br>
+And four figures break out into the clearing!<br>
+ Eugene Hillman <br>
+ Grace Tennyson <br>
+ Oscar Sanchez <br>
+ Sara Vasques <br>
+The remains of the Alvarez expedition ...<br>
+The expedition entered some caves, and came out in the strange valley ... <br>
+
 
 
