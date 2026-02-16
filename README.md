@@ -15,7 +15,7 @@ The exploits of the Monday Temples & Tombs group ...
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
 * <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-catches.png">Catches</a>
 
-### 27th October
+### 27th October 2025
 
 **In Alexandria**<br>
 
@@ -65,7 +65,7 @@ And one of them proceeds to walk around, telling Ace all about the building ... 
 
 Asrah focussed on the Roman period ...<br>
 
-The local knights, who were guarding the treasures of Hagia Sophia, aka the 'Plummers', evolved into the Knights of the Feather.<br>
+The local knights, who were guarding the treasures of Hagia Sophia, aka the 'Plumars', evolved into the Knights of the Feather.<br>
 Said they spirited the feather away before the Crusader Knights sacked the city.<br>
 
 The city has vast underground chambers, tunnels, passages, etc, with access by barred gates, locked each night.<br>
@@ -82,7 +82,7 @@ Asrah points at their coin collection ...
 Passing through the narthex ... spot a portrait of a knight, with a symbol on his shield ... **Ma'at** !!!<br>
 And in the background is a fortress ... in greek around edge, partial word **"KOUF..."**<br>
 
-Continue on to the collection, where there is a coin, supposedly Venetian, and on one side of it, a plume.<br> 
+Continue on to the collection, where there is a coin, supposedly Venetian, and on one side of it, a plume.<br>
 Checking the back ... another plume, and this has some greek writing around it ... **"KOUFONIFI"**.<br>
 ... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.png">'Koufonisi'</a>?<br>
 
@@ -90,7 +90,7 @@ Whilst everyone is engrossed in the "prof's" examination of the coin, Asrah excu
 Hendrick, ever the gentleman, offers to escort her, but before he can catch up with her, she closes the door and there is the **CLICK** of a lock ...<br>
 Ace thinks ... "*sadly, she hasn't seen Hendricks in action ... **he's so amazing, it's like magic!***"
 
-### 10th November
+### 10th November 2025
 
 Hendrick's picks the door with ease, and we give chase to Asrah through a crowded Hagia Sofia ...
 
@@ -137,7 +137,7 @@ Frank and Sam descend ok, but disaster strikes when Hendrick has an accident ...
 And even worse, he's brought down the rope, leaving Charlie stranded on the top of the wall.<br>
 Charlie yells to "meet me in Alexandria", and turns to face the attackers with the fake feather
 
-### 17th November
+### 17th November 2025
 
 Frank, Hendricks and Sam are stood at the bottom on a narrow ledge ... leaving Charlie is stuck on the top of the fort.
 
@@ -205,7 +205,7 @@ We get back to the museum, with the dust bellowing out of the collapsed tunnel.
 
 XP - take general talent [Stunt Person] ... You get a Hero Die whenever you use Stunt
 
-### 1st December
+### 1st December 2025
 
 In Lima, at the Hotel International, when get an invite to the Society of Global Naturalists<br>
 Black tie dinner party at Dr. Sara Luispe<br>
@@ -247,7 +247,7 @@ Check the ship out, and find some damage that needs fixing before we fly ...
 Suddenly a dinosaur (Spinosaurus) charges out of the jungle, attacking Ace...<br>
 Hendrick shots at it, and scares it off
 
-### 26th January 2026
+### 26th January
 
 Settle down for the night with a small camp fire<br>
 Usual jungle nighttime noises ... but there is an unknown deep rumble ... brontosaurs!<br>
@@ -272,10 +272,6 @@ Charlie spots some graves over near the caves ... about 10-12<br>
  ... quizzing Grace about deaths, and notes that Eugene has an old wound that could be a bullet graze<br>
 Survivor Eugene is keeping watch, including the caves above ! <br>
 
-======
-BREAK
-======
-
 City in a set of caves, Alvarez and four others have split from the 4 survivors<br>
 Take the spark plugs from the airship, so no-one else can fly it away ! <br>
 
@@ -290,5 +286,61 @@ He wants to do a proper archaeological retrieval.
 
 Settle down for the night, with a view to an early start to avoid the other group
 
+### 2nd February
 
+With Alvarez in his hidden city of the Incas, about 2 hours to the camp, and 4 hours to the zeppelin.<br>
+We've each got a backpack with notes, small Incan artifacts, etc. but the majority is being left to a proper investigation.<br>
+
+Checking outside the cave entrance ... all looks clear<br>
+
+Getting to the camp ... deserted !<br>
+Hendricks checks it out ... it's been cleared out.<br>
+There are tracks, including marks of a travois, heading towards our zeppelin<br>
+Head out ...<br>
+
+Close to the zeppelin we spot a few bits of jerked meat ... and a "wack wack" sound ... a dinosaur!<br>
+Taking cover off the path ... a pair of horned dinosaurs :-( <br>
+Blast one of them is looking at us ...<br>
+Hendrick starts the shot-out, followed by Ace and Charlie ...<br>
+It's well wounded and pulls back ... sadly the other one charges ! <br>
+It grabs Alvarez, and throws him with a big wound <br>
+We shot a second round at it ... which looks to have scared it off <br>
+Charlie works on Alvarez's wounds ...<br>
+
+Here shots from towards the zeppelin ... finding two dead dinosaurs<br>
+And a voice (Hillman) threatens us ... which is a mistake! <br>
+... COMBAT ENSUES ... and Hillman falls from the tree<br>
+Grace and Sara are also in cover, but let Charlie advance to sort out Hillman<br>
+... no sign of Sanchez <br>
+
+Negotiate with the two women to get everyone out of the valley <br>
+and take them all to Yungay or Lima as they want<br>
+Everyone will surrender their weapons, and stay in their cabins for the return journey<br>
+
+Finally get agreement from the two parties ...<br>
+
+Ace manages to navigate the zeppelin through the clouds & winds above the valley ...<br>
+Get to Yungay, and drop off the group, who head off into town with their ill gotten gains ...<br>
+
+Back in Lima, we get congratulations for showing the potential of the zeppelin<br>
+
+### 16th February
+
+After arrival at Lima, Frank finds a telegraph waiting for him, from Jasper Bing which arrived 3 days ago ... <br>
+Get 1st class train tickets for the journey to Rio.
+
+At the harbourmasters office, Frank gets an envelope.<br>
+The letter mentions the "Seal of Solomon", and having the exact location.<br>
+Asks to met in Dar Es Salaam before the end of September, and then "travel up country" ... <br>
+
+Frank checks with home base on the Seal with the Institute ... last seen in the birth place of the Queen of Sheba, nothing else known.<br>
+Try to blag a ride on the Zeppelin ... but hear a whisper of potential delay in New York, so decide to go with the steam ship route<br>
+
+Frank researches the Seal ... device reputedly used to "bind demons".<br>
+Charlie remembers that Solomon was involved in something about "jinn".<br>
+
+35 days later we arrive in Dar Es Salaam in Tanganyika Territory (under British mandate)
+
+There is a note in the hotel ... "when you arrive, meet me in Room 305".<br>
+Hendricks checks the room out ... seems clear ... there was a record playing in there.<br>
 
