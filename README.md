@@ -87,17 +87,17 @@ Checking the back ... another plume, and this has some greek writing around it .
 ... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.png">'Koufonisi'</a>?<br>
 
 Whilst everyone is engrossed in the "prof's" examination of the coin, Asrah excuses herself, and heads out of the room ... <br>
-Hendrick, ever the gentleman, offers to escort her, but before he can catch up with her, she closes the door and there is the **CLICK** of a lock ...<br>
+Hendricks, ever the gentleman, offers to escort her, but before he can catch up with her, she closes the door and there is the **CLICK** of a lock ...<br>
 Ace thinks ... "*sadly, she hasn't seen Hendricks in action ... **he's so amazing, it's like magic!***"
 
 ### 10th November 2025
 
-Hendrick's picks the door with ease, and we give chase to Asrah through a crowded Hagia Sofia ...
+Hendricks picks the door with ease, and we give chase to Asrah through a crowded Hagia Sofia ...
 
-Hendrick's catches up with Asrah at the main entrance<br>
+Hendricks catches up with Asrah at the main entrance<br>
 And gets warned about "Agents Ahead" (the Itie's) by one of her associates (the Brit's)
 
-Hendrick's, Asrah and Brit agents jump into a car, and head off<br>
+Hendricks, Asrah and Brit agents jump into a car, and head off<br>
 The Italian's get into their car and give chase<br>
 Frank jumps onto the italians car's running board<br>
 And Sam hijacks a taxi, and joins the chase.
@@ -124,7 +124,7 @@ Frank scratches his head ... and points at Anubis.<br>
 
 Continue on the passage, to a chamber with a "river" running through it, with a "coracle" on the side, and an overhead pulley system.<br>
 We all cross the "river", and proceed further ...<br>
-Hendrick spots some trip wires ... and warns the rest of the party.<br>
+Hendricks spots some trip wires ... and warns the rest of the party.<br>
 Eventually is arrives at a cavern, with a niche on the wall.<br>
 This niche has an engraving of Ma'at over it, and in it, is a large, ornately carved box.<br>
 Frank reckons it contains the feather, and opens it to find a large blue & white ostrich feather.<br>
@@ -133,7 +133,7 @@ Whilst crossing the river, Sam hears gun fire from outside<br>
 Cautiously advancing, avoiding the traps, the party emerges to find the French are attacking.<br>
 Trying to avoid them, while Asrah and the SIS agents keep them engaged, we climb down the fortress wall.<br>
 
-Frank and Sam descend ok, but disaster strikes when Hendrick has an accident ... <br>
+Frank and Sam descend ok, but disaster strikes when Hendricks has an accident ... <br>
 And even worse, he's brought down the rope, leaving Charlie stranded on the top of the wall.<br>
 Charlie yells to "meet me in Alexandria", and turns to face the attackers with the fake feather
 
@@ -154,7 +154,7 @@ She is taken away be the French agents ... and hear them moaning about the feath
 Head down the Nile to Luxor, and meet up with Professor Henri in his office.<br>
 Stepping in to his office, and are ambushed by two brit's with guns.<br>
 Henri apologies, and a third man (Bishop, SIS) comes in and goes to take Henri's seat.<br>
-Hendrick's dodges out of the room, barges into a third agent, dodges past him, out into the main body of the museum.<br>
+Hendricks dodges out of the room, barges into a third agent, dodges past him, out into the main body of the museum.<br>
 
 Bishop wants the plume returning to the temple, and is demanding it be done.<br>
 And reckons the path to the temple has been compromised.<br>
@@ -187,7 +187,7 @@ The Apep symbol is all over the room, similar to plaster appliques to the wall.<
 Frank reckons we should remove them all ... and there is a "frump" noise as if something has settled?<br>
 
 Beyond is a room, with symbols carved all over for the gods, the sacred scarab, and many more ...<br>
-Hendrick reckons the "tiles" are very brittle, and there is nothing beneath them.<br>
+Hendricks reckons the "tiles" are very brittle, and there is nothing beneath them.<br>
 Frank reckons the scarab's are an outlier!<br>
 We have to jump across the scarab tiles ...
 
@@ -245,7 +245,7 @@ After a nervous night, dawn shows the plants are nothing like what we know ... i
 Check the ship out, and find some damage that needs fixing before we fly ...
 
 Suddenly a dinosaur (Spinosaurus) charges out of the jungle, attacking Ace...<br>
-Hendrick shots at it, and scares it off
+Hendricks shots at it, and scares it off
 
 ### 26th January
 
@@ -276,7 +276,7 @@ City in a set of caves, Alvarez and four others have split from the 4 survivors<
 Take the spark plugs from the airship, so no-one else can fly it away ! <br>
 
 Head out to the Alvarez camp in the caves.<br>
-Hendrick disables their traps. <br>
+Hendricks disables their traps. <br>
 And then into the cave and come through to a large cavern with a small Incan settlement in it.<br>
 
 Charlie persuades Alvarez to let him examine him ... all Ok if a little paranoid ... with reason !<br>
@@ -301,7 +301,7 @@ Head out ...<br>
 Close to the zeppelin we spot a few bits of jerked meat ... and a "wack wack" sound ... a dinosaur!<br>
 Taking cover off the path ... a pair of horned dinosaurs :-( <br>
 Blast one of them is looking at us ...<br>
-Hendrick starts the shot-out, followed by Ace and Charlie ...<br>
+Hendricks starts the shot-out, followed by Ace and Charlie ...<br>
 It's well wounded and pulls back ... sadly the other one charges ! <br>
 It grabs Alvarez, and throws him with a big wound <br>
 We shot a second round at it ... which looks to have scared it off <br>
@@ -333,14 +333,78 @@ At the harbourmasters office, Frank gets an envelope.<br>
 The letter mentions the "Seal of Solomon", and having the exact location.<br>
 Asks to met in Dar Es Salaam before the end of September, and then "travel up country" ... <br>
 
-Frank checks with home base on the Seal with the Institute ... last seen in the birth place of the Queen of Sheba, nothing else known.<br>
-Try to blag a ride on the Zeppelin ... but hear a whisper of potential delay in New York, so decide to go with the steam ship route<br>
+Frank checks with home base on the Seal with the Institute ... <br>
+... last seen in the birth place of the Queen of Sheba, nothing else known.<br>
+Try to blag a ride on the Zeppelin ... <br>
+... but hear a whisper of potential delay in New York, so decide to go with the steam ship route<br>
 
-Frank researches the Seal ... device reputedly used to "bind demons".<br>
+Frank researches the Seal ... <br>
+... device reputedly used to "bind demons".<br>
 Charlie remembers that Solomon was involved in something about "jinn".<br>
 
 35 days later we arrive in Dar Es Salaam in Tanganyika Territory (under British mandate)
 
 There is a note in the hotel ... "when you arrive, meet me in Room 305".<br>
 Hendricks checks the room out ... seems clear ... there was a record playing in there.<br>
+
+Magic Huskington was out in India. Came over here when territory taken over by Brits.<br>
+Retired and bought steamboat on Lake Victoria.<br>
+Found notes from German archaeological team, which included map to the Seal <br>
+Location looks to be the marsh land south of the lake.<br>
+And Charlie remembers article about the "Leopard Society" who are anti-white settlers in an aggressive way.<br>
+
+Meet up with Bing and chat about the Seal.<br>
+The seal is an engraved disc, about 6" diameter.<br>
+He reckons we head to a place called "Usenge (aka Ussenje)".<br>
+
+Meanwhile Hendricks breaks in to Room 305 ... common bits, but also automatic pistol and some dynamite, plus a timetable for railway across Tanganyika<br>
+
+Ace goes poking around for some "ju-ju" to protect against animals ... <br>
+... and also get a "bunch of feathers" tied in specific pattern for "protection" against the Leopard Society<br>
+... ju-ju is good for +10 for shooting hippo's
+
+Poking around Frank gets more details on the Queen of Sheba ...<br>
+... in 1913, German archaeological team were exploring in the region
+
+Set off in the train to Lake Tanganyika, heading for Usenge ...<br>
+Just out from Tabora, evening after dinner in the dining car, Bing is finishing his cigar ...<br>
+... train brakes slam on !!!<br>
+... shots being fired !!!<br>
+Hendricks spots someone (who is wears leopard skin) incoming through the skylight of the dining car !<br>
+Dead bodies in the dining car ... but no Bing!<br>
+Head towards the engine, looking for Bing<br>
+Hendricks checks the engine ... armed guards are there ... "We fought them off"<br>
+
+Charlie spots Bing's jacket on a chair ... the map?
+
+### 23rd February
+
+In the calm after the storm, Charlie "borrows" the map from Charlie's coat ... before Bing appears out of the rear toilet
+
+Show the train conductor our maps ...<br>
+... he reckons we'll need a boat<br>
+... and a good idea to take native guides!
+
+Arrive at Usenge ...<br>
+... bodies being stretchered off the rear of the train<br>
+... taken by local "police" ... more military
+
+Hendricks Tambo, Juma, Ewana from the station master, and Badu from the cousin of the porter<br>
+... showing ju-ju and Juma has a bit of a "tick"
+
+We end up going with Tambo as guide<br>
+Stay for the night in the station hotel<br>
+
+Tambo has arranged boats and bearers, so we set out ...<br>
+... first day goes fine, and arrive at village<br>
+... quiet night<br>
+... second day also goes fine, and arrive Niamagonga<br>
+... quiet night<br>
+... third day nearing destination ... remaining bit of river, and into the marsh/boggy lands <br>
+
+Arrive at mound, with a "stone doorway" ... an entranceway down into the mound<br>
+There has been some digging to expose it ... maybe 20 years ... Germans?<br>
+Frank reckons the doorway construction has a "flavour" of early Egyptian "old kingdom" design<br>
+
+
 
