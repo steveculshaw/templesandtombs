@@ -4,16 +4,16 @@ The exploits of the Monday Temples & Tombs group ...
 
 ## Characters
 
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/charlie-takajima.jpg">Dr Charlie Takajima   *(Andy)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord.jpg">Dr 'Frank' Francis Lionel Secord   *(Neil)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ace-kirby-image.jpg">Sam 'Ace' Kirby   *(Steve)*</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/Coughlin-Curtiss-Robin.jpg">Jenny (a plane) *(aka Coughlin-Curtiss-Robin)*</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/charlie-takajima.jpg">Dr Charlie Takajima   *(Andy)*</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/hendrix-image.jpg">Hendricks   *(Lynne)*</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/frank-lionel-secord.jpg">Dr 'Frank' Francis Lionel Secord   *(Neil)*</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/sam-ace-kirby-image.jpg">Sam 'Ace' Kirby   *(Steve)*</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/Coughlin-Curtiss-Robin.jpg">Jenny (a plane) *(aka Coughlin-Curtiss-Robin)*</a>
 
 ## Current Adventure
 
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
-* <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-catches.png">Catches</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-heroic-actions.png">Heroic Actions</a>
+*<a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/tt-catches.png">Catches</a>
 
 ### 27th October 2025
 
@@ -45,7 +45,8 @@ Knights of the Feather were mentioned 1204, just before the fifth crusade/sackin
 Professor Henri reckons we need to head to Constantinople ...<br>
 He has a contact, **Asrah Teckin** works at the Hagia Sophia Museum. She curates the Byzantine antiquities.<br>
 
-He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br><br>
+He says the hieroglyphs suggest that the golden feather of truth was used as part of the weighing of the soul.<br>
+<br>
 And he warns us ... <b>Do not enter the temple without the feather !!!</b>
 
 ---
@@ -84,7 +85,7 @@ And in the background is a fortress ... in greek around edge, partial word **"KO
 
 Continue on to the collection, where there is a coin, supposedly Venetian, and on one side of it, a plume.<br>
 Checking the back ... another plume, and this has some greek writing around it ... **"KOUFONIFI"**.<br>
-... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.png">'Koufonisi'</a>?<br>
+... the greek islands of <a target="_blank" rel="noopener" href="https://steveculshaw.github.io/templesandtombs/images/koufonisi.png">'Koufonisi'</a>?  <br>
 
 Whilst everyone is engrossed in the "prof's" examination of the coin, Asrah excuses herself, and heads out of the room ... <br>
 Hendricks, ever the gentleman, offers to escort her, but before he can catch up with her, she closes the door and there is the **CLICK** of a lock ...<br>
@@ -104,11 +105,11 @@ And Sam hijacks a taxi, and joins the chase.
 
 Gun fire is exchanged between Brit's, Italian's and Sam in the trailing taxi<br>
 
-We deal with the Itie's and head of towards the airport ---> <br>
+We deal with the Itie's and head of towards the airport ---><br>
 
 Asrah reckons we're seeking "The Plume", and we should go with them to Koufonisi ... actually we should be the lead, and she and the SIS agents will escort us
 
-Sam takes the planes controls, saying goodbye to Jenny leaving her in Istanbul, and the group heads for Koufonisi ---> <br>
+Sam takes the planes controls, saying goodbye to Jenny leaving her in Istanbul, and the group heads for Koufonisi ---><br>
 
 Land the mail plane at Naxos, and get a boat over to the island of Koufonisi.<br>
 Walk up the hill towards the fortress on the hill.<br>
@@ -229,7 +230,7 @@ The original bones were from a "Dr Chambi"
 
 Depart to Yungay taking 4 days in the zeppelin.<br>
 Head into town and met Dr Chambi.<br>
-He has a cupboard with more examples, including some which are as tall as Hendrick<br>
+He has a cupboard with more examples, including some which are as tall as Hendricks<br>
 Could have been from a predator, some 40' high!<br>
 
 Depart Yungay heading for the mountains ...<br>
@@ -406,5 +407,20 @@ Arrive at mound, with a "stone doorway" ... an entranceway down into the mound<b
 There has been some digging to expose it ... maybe 20 years ... Germans?<br>
 Frank reckons the doorway construction has a "flavour" of early Egyptian "old kingdom" design<br>
 
+The porters seem upset with the "doorway" ... bad spirits live in there<br>
 
+We enter the underground ....<br>
+Passageways, crossroads, pools of water ... <br>
+... out of which a giant snake attacks Hendricks ...<br>
+... fusillade of shots and one dead snake later
 
+Continue checking more passageways ...<br>
+... there's a door !
+Frank reckons he can hear a voice !!!<br>
+Hendricks thinks it has been previously opened (scratch marks) recently!<br>
+... and a voice "Quiet now"
+Hendricks gently cracks open the door ...<br>
+... and a sophisticated voice "Bing, is that you ... what rabble have you brought with you this time!"
+... Professor Lansdale
+
+### 2nd March
