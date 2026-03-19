@@ -424,3 +424,23 @@ Hendricks gently cracks open the door ...<br>
 ... Professor Lansdale
 
 ### 2nd March
+
+After a face off, we come to a "gentleman's agreement" to shelve the fight while we search for the seal ...
+
+We enter the chamber where they were ... looks like they were searching for something "secret", but failing<br>
+Hendricks eyes the room, and reckons there isn't one<br>
+Frank leads the Prof to believe the main chamber is the likely place to check ...<br>
+
+Hendricks sneaks off with no-one being the wiser ...<br>
+Later Frank joins him, and they find a possible location for the seal<br>
+Charlie gets Ace to slip away from the main group, and Ace joins Hendrick & Frank<br>
+They force open the doorway, and enter the likely location of the seal<br>
+There is an alcove with an possible altarpiece?<br>
+Hendricks pokes around and pulls out a "metal disk" ... seems to be a mashup of jewish & egyptian markings!<br>
+
+Frank convinces the prof that there's something there ...<br>
+Meanwhile we sidle out of the room and retreat ... convincing Eustace that there are more snakes!<br>
+
+The chase is on ...
+
+... and we win it
